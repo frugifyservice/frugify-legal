@@ -1,0 +1,1 @@
+# frugify-legal
